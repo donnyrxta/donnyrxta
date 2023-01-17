@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @donnyrxta
 - 👀 I’m interested in technology.
-- 🌱 I’m currently learning Virtual Assistance
+- 🌱 I’m currently learning Impactful Problem Solving.
 - 💞️ I’m looking to collaborate on Initiatives that impact society positively.
 - 📫 How to reach me :donaldson@consultant.com
 
